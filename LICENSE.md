@@ -1,4 +1,4 @@
-
+plants vs brainrots Script custom offers the most advanced plants vs brainrots Script, with speed and auto-upgrade. Perfect for dominating any match.
 
 
 
